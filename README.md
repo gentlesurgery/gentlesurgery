@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="308" height="308" src="https://files.catbox.moe/kgno3o.png">
+  <img width="308" height="308" src="https://files.catbox.moe/xfz39z.png">
 </p>
 <p align="center">
 art by rincloudd .. yay yaoi yay yuri yay stamps
