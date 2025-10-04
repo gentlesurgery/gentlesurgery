@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=gentlesurgery&label=viewuhz&style=flat-square&color=e8ddc1)
+![](https://komarev.com/ghpvc/?username=gentlesurgery&label=stalkers&style=flat-square&color=e8ddc1)
   
 <p align="center">
   <img width="308" height="308" src="https://files.catbox.moe/rhvkfo.png">
