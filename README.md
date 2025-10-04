@@ -13,7 +13,7 @@
 </p>
 
 <div align="center">
-    <img <p><a href="https://rentry.co/zep"><img width="137" height="29" src="https://files.catbox.moe/3tr0l9.png" alt="rentry"><img <p><a href="https://rentry.co/poly-141"><img width="137" height="29" src="https://files.catbox.moe/c4d6hj.png" alt="ext"><img <p><a href="https://www.tumblr.com/tar-antula-juice/781120841341616128/posting-first-time-forever?source=share"><img width="137" height="29"src="https://files.catbox.moe/lpy1un.png" alt="creds">
+    <img <p><a href="https://rentry.co/zep"><img width="137" height="29" src="https://files.catbox.moe/3tr0l9.png" alt="rentry"><img <p><a href="https://dudecest.straw.page/"><img width="137" height="29" src="https://files.catbox.moe/c4d6hj.png" alt="ext"><img <p><a href="https://www.tumblr.com/tar-antula-juice/781120841341616128/posting-first-time-forever?source=share"><img width="137" height="29"src="https://files.catbox.moe/lpy1un.png" alt="creds">
 </p>
       
 
