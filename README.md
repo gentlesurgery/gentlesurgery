@@ -8,9 +8,13 @@
   <img width="99" height="56" src="https://64.media.tumblr.com/b4ebd5c4fc6d950e2a483cbdefd2c4f4/06347e3cc43dfdfd-88/s250x400/3dc9cab9c5586d04635073b96ce58f8e721ea3b7.gifv">
 </p>
 
-<p align="center">
+<div align="center">
     <img <p><a href="https://rentry.co/zep"><img width="137" height="29" src="https://files.catbox.moe/3tr0l9.png" alt="rentry"><img <p><a href="https://rentry.co/poly-141"><img width="137" height="29" src="https://files.catbox.moe/c4d6hj.png" alt="ext"><img <p><a href="https://www.tumblr.com/tar-antula-juice/781120841341616128/posting-first-time-forever?source=share"><img width="137" height="29"src="https://files.catbox.moe/lpy1un.png" alt="creds">
 </p>
+      
+
+
+
 
 
 
